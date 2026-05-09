@@ -1,2 +1,2 @@
 ###**READ THIS**###
-<img width="1280" height="1142" alt="image" src="https://github.com/user-attachments/assets/c2e42b31-9369-4180-9be7-07329ca09b73" />
+<img width="1279" height="1150" alt="image" src="https://github.com/user-attachments/assets/65947ec2-f3df-4c55-ac87-20d1fe658b75" />
